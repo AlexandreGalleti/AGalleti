@@ -1,0 +1,6 @@
+- 👋 Oi eae sou o AleGalleti
+- 👀 estou interessado em aprender programação
+- 🌱 aprendendo Delphi, reactJS e python 
+- 💞️ gosto de jogos, animes e artes marciais 
+- 📫 sou Suporte / DEV JR 
+-  ainda sou iniciante mais nào vou desistir 😄
